@@ -3,7 +3,7 @@
 🧠just a rookie
 👾intovert
 🧩problem solver
-📊data analyis
+📊data analysis
 
 
 ## 🌐 Socials:
